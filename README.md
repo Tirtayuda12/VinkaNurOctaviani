@@ -1,2 +1,1 @@
-# VinkaNurOctaviani
-masa depanku
+
